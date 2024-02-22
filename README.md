@@ -7,3 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Rian abdi, [oo.or.id](https://oo.or.id).
+* Rian Akun Alter, [Linkedin](https://www.linkedin.com/in/rianwahy/).
